@@ -1,4 +1,4 @@
-**Steam Turbine Market 2024 | Size, Share, Demand, Key Players Analysis and Forecast by 2032**
+## Steam Turbine Market 2024 | Size, Share, Demand, Key players Analysis and Forecast by 2032
 
 The latest report by IMARC Group, titled “**Steam Turbine Market Report by Exhaust Type (Condensing, Non-Condensing), Capacity (Less than 120 MW, 121-350 MW, 351-750 MW, More than 750 MW), Technology (Steam Cycle, Combined Cycle, Cogeneration), Application (Power Generation, Petrochemicals, Oil & Gas, and Others), and Region 2024-2032**”, offers a comprehensive analysis of the industry, which comprises insights on the market.
 
